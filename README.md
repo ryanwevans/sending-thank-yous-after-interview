@@ -21,7 +21,7 @@ Here are key best practices for your thank you:
 
 **Send your thank you no later than 24 hours after every networking conversation, meeting, interview or communication exchange.**
 
-This shows you are timely and seriously interested. Plus, it helps the person you met/interviewer remember you more, as you are still fresh in their mind. Do this even if you’ve met them interviewer before, or on several occasions.
+This shows you are timely and seriously interested. Plus, it helps the person you met/interviewer remember you more, as you are still fresh in their mind. Do this even if you’ve met the interviewer before, or on several occasions.
 
 
 **Email each interviewer individually.**
